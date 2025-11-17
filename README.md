@@ -1,1 +1,1 @@
-# FBLA-2025-26-Project-Jack-of-all-Trades-
+# Jack of all Trades
